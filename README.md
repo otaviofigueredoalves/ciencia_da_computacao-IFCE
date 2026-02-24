@@ -1,0 +1,1 @@
+# Repositório destinado a armazenar o conteúdo completo da graduação. Incluindo exercícios, materiais complementares e anotações.
