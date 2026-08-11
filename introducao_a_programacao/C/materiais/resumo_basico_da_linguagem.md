@@ -1,0 +1,1 @@
+https://dev.to/nfo94/resumo-basico-da-linguagem-c-para-logica-de-programacao-23o4
